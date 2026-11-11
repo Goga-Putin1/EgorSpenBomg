@@ -1,1 +1,1 @@
-Hello ку
+Hello куу
